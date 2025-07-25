@@ -1,1 +1,1 @@
-# Organozacion-y-priorazacion
+# Organizacion-y-priorizacion
